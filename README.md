@@ -1,3 +1,3 @@
-- 👋 Oi, eu sou a IdkIive
+- 👋 Oi, me chame de IdkIive
 - 👀 Sou interessada em fotografia, designer, marketing...
 - 🌱 No Ensino Médio.
